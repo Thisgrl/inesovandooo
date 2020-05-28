@@ -1,2 +1,0 @@
-# inesovandooo
-School Proyect 
